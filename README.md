@@ -1,1 +1,1 @@
-# SI_2023_lab2_191236
+Slobodanka Delova 191236
